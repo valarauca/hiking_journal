@@ -35,5 +35,45 @@ Mistakes:
 * **Didnt replace shoes**: Ordered 13.5wide Altras Lone Peak 6's. Maybe they'll work better.
 * **Late Start**: Didn't break camp until Noon and had to night hike back.
 
+## 2022-Oct-15 to 2022-Oct-16
+
+Rancheria Trailhead (36.975345,-118.9604276) <-> Tehipite Dome (36.91880,-118.78100)
+
+* **Blister**: None. Xero aqua shoes performed exceptionally well. Bad grip on wet surfaces.
+* **Planning**: Great
+
+Improvements:
+
+* **Lighter Kit**: worked great.
+
+Mistakes:
+
+* **Pain Killers**: Took too many, got a stomach ulcer.
+
+## 2023-Feb-18 to 2023-Feb-20th
+
+Southern Lost Coast. Usal Beach to Usal Beach
+
+* **Rough Trail Conditions**: A lot of blow down. Last 3 miles from Jackass to Usal was hard route finding.
+* **Blister**: None. Xero Aquashoes stay winning. Bad grip on wet surfaces.
+
+Improvements:
+
+* **Planning**: Well Planned
+
+Mistakes:
+
+* **Pack Weight**: Approximately 35lbs total (20lbs base weight) made the hilly sections a slog.
+* **Bear Can**: Invest in a bear bag.
+* **Calories**: Be mindful of consumption. Day 2 I ate in an insufficient breakfast and felt like death. Killed pace.
+
+## 2023-March-18
+
+Up & Down Mt. Umunhum from Mockingbird Hill Entrance (24.5mi round trip)
+
+* 100cals of sugar & 500ml of water helped keep pace up.
+* Average pace was still ~21min/mile.
+* No blisters. Xero Aquashoes have some drawbacks when walking on rocks, after ~20 miles my feet get a little raw.
+
 
 
